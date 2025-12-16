@@ -1,0 +1,1 @@
+# Adaptive-Trilemma-Valuation-Model-ATVM-
